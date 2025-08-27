@@ -1,4 +1,4 @@
-### Hi I'm Shailla! I am a Final Year Software Engineering student at Sunway University.👋👩‍💻<br>
+### Hi I'm Shailla! I am a Software Engineering Graduate from Sunway University.👋👩‍💻<br>
 
 
 **I'm interested in:**<br><br>
